@@ -1,0 +1,1 @@
+# exploracao-mercado-financeiro
